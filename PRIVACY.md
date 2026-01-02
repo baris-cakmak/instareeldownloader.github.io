@@ -122,7 +122,7 @@ You have the right to:
 - Disable analytics in app settings (if available)
 - Use device-level privacy settings
 
-To exercise these rights, contact us at support@peacelighter.com
+To exercise these rights, contact us at bariscakmak26@icloud.com
 
 ## 7. Children's Privacy
 
