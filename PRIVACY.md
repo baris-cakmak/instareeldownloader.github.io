@@ -179,7 +179,7 @@ If you are in the European Economic Area (EEA), you have rights under the Genera
 
 If you have any questions, concerns, or requests regarding this Privacy Policy or our data practices, please contact us:
 
-**Email:** support@peacelighter.com
+**Email:** bariscakmak26@icloud.com
 
 **Response Time:** We aim to respond to all inquiries within 48 hours.
 
